@@ -1,1 +1,1 @@
-南無阿弥陀仏
+namuamidabutu
